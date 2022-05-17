@@ -1,2 +1,2 @@
 # Summary for Chapter 1-6
-Percy Jakckson is a trouble kid. He is 12, a boarding student at a private school called Yancy Academy. 
+Percy Jakckson is a trouble kid. He is 12, a boarding student at a private school called Yancy Academy. They're going to do a field trip. But Percy knows he is always in trouble, even he get a probation. He have dyslexia and attention dicifit disorder so his grades is always bad. And this means he can't learn all those names and facts as well as spell them correctly.

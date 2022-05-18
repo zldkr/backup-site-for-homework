@@ -21,10 +21,12 @@ After she had a fight with her husband, she started eating blue. It indicates th
 ## Question 2
 Mr. D is the camp director. 
 Clues:
->He took the empty glass from me gingerly, as if it was dynamite, and set it back on the table.  
+>He took the empty glass from me gingerly, as if it was dynamite, and set it back on the table.
+
 We could find that Mr. D is authoritative, and his employees are in an orderly manner. 
 
 >Come on. Chiron and Mr. D is waiting.   
+
 He is a big shot. 
 
 >He looked like a cherub who'd turned middle-aged in a trailer park. He wore a tiger-pattern Hawaiian shirt, and he would've fit right in at one of Gabe's poker parties, except I got the feeling this guy could've out-gambled even my step-father.   

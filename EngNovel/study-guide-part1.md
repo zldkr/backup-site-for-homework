@@ -4,7 +4,8 @@ Percy Jackson is a troubled kid. He is 12, a boarding student at a poor school _
 
 # Detailed Questions
 ## Question 1
-    >Mrs. Dodds was this little math teacher from  Georgia who always wore a black leather jacket even though he was fifty years old. 
+>Mrs. Dodds was this little math teacher from  Georgia who always wore a black leather jacket even though he was fifty years old. 
+
 Because he pushed Nancy into the water, and she wanted to give him a lesson. 
 
 ## Question 2

@@ -131,6 +131,6 @@ Hades tells him that he doesn't want war – he can't afford to have a huge surg
 
 
 # Travel Map
-He went to New Jersey,The Saint Louis Arch, Denver, Las Vegas, and Los Angelas.
+He went to New Jersey,The Saint Louis Arch, Denver, Las Vegas, and Los Angeles.
 
 ![Travel Map](https://github.com/zldkr/backup-site-for-homework/blob/main/EngNovel/image/scrshot.PNG)

@@ -1,4 +1,4 @@
-# Summary of Chapters 12-17
+# Summary of Chapters 18-22
 Annabeth, Percy, and Grover arrive at the recording studio, and meet a security guard named Charon who asks them to pay for their entrance. Percy gives him some drachmas he stole from Crusty’s office before they left. Charon is not happy with the amount and will not allow them to enter. After Charon recognizes Percy is a godling, Percy hands him a bag full of drachmas and says that he will put in a good word with Hades about giving Charon a proper raise. Charon agrees and the group departs toward one of three entrances with metal detectors and security cameras. 
 
 Before passing through the security line, the three are stopped by Cerberus, a three-headed security Rottweiler. Percy tries to distract him with a bedpost he took from Crusty’s, but Cerberus is not interested in “the stick.” Annabeth pulls out a ball she took from the waterpark and commands Cerberus to sit. Percy and Grover are able to sneak past the dog while Annabeth distracts him. She tosses him the ball and catches up with Grover and Percy. They set off the metal detectors with their magical items and run to escape the security guards.
@@ -133,4 +133,4 @@ Hades tells him that he doesn't want war – he can't afford to have a huge surg
 # Travel Map
 He went to New Jersey,The Saint Louis Arch, Denver, Las Vegas, and Los Angelas.
 
-![Travel Map](/image/scrshot.png)
+![Travel Map](image/scrshot.png)

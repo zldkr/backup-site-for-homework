@@ -8,18 +8,33 @@ Percy Jackson is a troubled kid. He is 12, a boarding student at a poor school _
 
 Because he pushed Nancy into the water, and she wanted to give him a lesson. 
 
+She is a Fury.
+
 ## Question 2
 Because he has dyslexia and attention deficit disorder. 
+
+He is dyslexic and hyperactive. / something creepy happened unsafe that forced him to move. 
 
 ## Question 3
 Who's Percy Jackson is the question.
 
+Everyone want to know about their origin or which deity is their birthfather/mother.
+
+Blood tie-legtimimate.
 
 # Open-ended Questions
 ## Question 1
-After she had a fight with her husband, she started eating blue. It indicates that she did have a rebellious streak. 
+After she had a fight with her husband, she started eating blue. It indicates that she had a rebellious streak. 
+
+Indicates the importance of the color blue to her. Percy's father is the god of sea.
 
 ## Question 2
+Mr.D is Dionysus the god of wine and harvest. Runner of half-blood. 
+
+could make strawberries.
+
+The clues include that Grover the goat was afraid of him. 
+
 Mr. D is the camp director. 
 Clues:
 >He took the empty glass from me gingerly, as if it was dynamite, and set it back on the table.
@@ -33,6 +48,12 @@ He is a big shot.
 >He looked like a cherub who'd turned middle-aged in a trailer park. He wore a tiger-pattern Hawaiian shirt, and he would've fit right in at one of Gabe's poker parties, except I got the feeling this guy could've out-gambled even my step-father.   
 
 ## Question 3
+from greece to rome to germany to france to spain to england and now to america.
+
+the gods have moved as the center of western civilization shifted.
+
 The Greek gods live in America now. According to Chiron, the gods move with the heart of the West. 
 
 This indicates that gods never die, they just simply move. It also inticates America is now the heart of the West. Sentences like '_of course they are now in your United State_' as well as '_And so Olympus is here. And we are here._' inplies that everyone in the camp aren't normal. Sounds like he's a member of some club and they are sended there to execute some duty. 
+
+implies the center of western world has changed many times

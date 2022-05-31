@@ -55,11 +55,15 @@ The Nereid warns Percy not to trust Hades, and tells him to follow his heart no 
 
 # Open-ended Questions
 ## Question 1
+he wasn't sure if his father would or could help him this time. after all poseidon is the god of the sea and mississippi was a river in the central part of usa.
+
 Because he was angry with the Gods. He also wanted to give them a "souvenir" for all the trouble they got him into. 
 
 Percy wraps Medusa's head in a bag, puts it in a box, and sends it to the gods saying "With best wishes Percy Jackson." 
 
 ## Question 2
+he wanted to show his impertinence to the gods because they have put him in so much danger he also wanted to show the gods especially his father what he had done and what he was capable of. and he secretlywanted to make his father proudand show him it wasn't a mistake to claim him.
+
 They are messages from the gods that clue Percy in to what he needs to know in order to succeed at his quest. These dreams are essential knowledge that keeps Percy moving forward and uncovering the truth.
 
 Throughout the series, demigods often have dreams of importance, indicating a message from someone else, or what may happen in the future.
@@ -67,7 +71,26 @@ Throughout the series, demigods often have dreams of importance, indicating a me
 In this novel, Percy has several dreams of Kronos, trying to convince him to join the Titan army. Percy also had dreams of Thalia Grace, as well as one with a horse fighting an eagle, they represent Poseidon and Zeus respectively. 
 
 ## Question 3
+indicating the great power of the evil. the monster in the pit can summon control and brainwash people in their dreams.
+
+foreshadowing. dream give percy hints for example about the trouble he was facing the fight betw the eagle and the horse and the familar voice of invisible servant
+
+increasing the tension in the story dreams bring a sense of mystery to the story and increase the suspense of the story especially through the talks between the monster in the chasm and percy and the invisible servant
+
 Some mythological characters symbolize environmental issues in America, particularly about the degradation condition and the effort of make them better. They are Poseidon, Pan, and Satyrs. Poseidon is the a mythical character representing of water condition. The function of Poseidon here is to repair the condition of polluted water in America. Pan is the mythical character representing wild area or forest.His condition pictures the decreasing certain number of forest area in America.(_Grover tells Percy that it's his life's dream to find Pan. He tells Percy about Pan: ... He protected us and the wild places of the earth._)
 >"The God of Wild Places disappeared two thousand years ago … A sailor off the coast of Ephesos heard a mysterious voice crying out from the shore, 'Tell them that the great god Pan has died!' When humans heard the news, they believed it. They've been pillaging Pan's kingdom ever since. But for the satyrs, Pan was our lord and master. He protected us and the wild places of the earth. We refuse to believe that he died."
 
 And the last character is Satyr who represents the environmentalist movement in America.
+
+## Question 4
+p188 grover:
+>'this makes me sad.'he pointed at all the garbage on the ground and the sky.youcan't see the stars they've polluted the sky this is a terrible time to be a satyr
+
+p212 percy:
+>i settled on the river bottom soundlessly clouds of silt and disgusting garbage beer bottles old shoes plastic bags swirled up all around me 
+
+p214 spirit in the water:
+>Please percy i cannot stay long the river here is too foul for my presence
+
+chap 16:
+>the illegal trafficking and mistreating of animals.
